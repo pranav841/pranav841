@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @pranav841
-- 👀 I’m interested in ...programming
+- 👀 I’m interested in ...
 - 🌱 I’m currently pursuing  ...1st YEAR
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking for internship
 - 📫 How to reach me ...somavanshipranav@gmail.com
 - ✨I'm pursuing my BTECH degree of (ECE) in VELLORE INSTITUTE OF TECHNOLOGY.
 - ✨I'm good at football....⚽️
